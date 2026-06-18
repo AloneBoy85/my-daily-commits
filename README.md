@@ -10,3 +10,4 @@ Day 7 - I miss this day because I'm busy on positions.
 Day 8 - Today I was completely focused on airdrops.
 Day 9 - Damn,I lost may ninth day,but consistency is important,Nah?
 Day 10 - It seems like I missed day 10, but the weird thing is, I wasn't paying attention and I just realized it now 😂
+Day 11 - Today is the eleventh day and I didn't miss it (thank goodness 😁)
