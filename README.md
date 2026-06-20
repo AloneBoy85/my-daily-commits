@@ -12,3 +12,4 @@ Day 9 - Damn,I lost may ninth day,but consistency is important,Nah?
 Day 10 - It seems like I missed day 10, but the weird thing is, I wasn't paying attention and I just realized it now 😂
 Day 11 - Today is the eleventh day and I didn't miss it (thank goodness 😁)
 Day 12 - Today is day 12 of the challenge and thank God I didn't miss it today. The secret to success in anything is persistence. Thank God.
+Day 13 - Today is the 13th day of the beginning of this process and so far I have maintained the continuity I like. Thank God.
