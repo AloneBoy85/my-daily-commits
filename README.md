@@ -13,3 +13,4 @@ Day 10 - It seems like I missed day 10, but the weird thing is, I wasn't paying 
 Day 11 - Today is the eleventh day and I didn't miss it (thank goodness 😁)
 Day 12 - Today is day 12 of the challenge and thank God I didn't miss it today. The secret to success in anything is persistence. Thank God.
 Day 13 - Today is the 13th day of the beginning of this process and so far I have maintained the continuity I like. Thank God.
+Day 14 - This is day 14,Nothing to say,just blob blob blob.
