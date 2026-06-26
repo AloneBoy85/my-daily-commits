@@ -19,4 +19,5 @@ Day 16 - Today is the 16th day of my gate routine and well; today I was saved fr
 God is very kind to me
 Day 17 - Today, the 17th, was my routine. My day started out hard, but it ended well and happily. I thank God.
 Day 18 - Today is the 18th day of the challenge. I am moving forward with my routine. May God protect me.
+Day 19 - This is Day 19.
 ی
