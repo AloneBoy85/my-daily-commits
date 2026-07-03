@@ -26,4 +26,5 @@ Day 22 - this is day 25,I feel bad today
 Day 23 - I feel bad today
 Day 24 - Everything went strangely today. But the winner is the one who survives in bad conditions, Right?
 Day 25 - This is the 25th day
+Day 26 - I feel nothing today,A bad day
 ی
