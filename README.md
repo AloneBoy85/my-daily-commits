@@ -39,3 +39,6 @@ Day 35 -
 Day 36 -
 Day 37 -
 Day 38 - Nothing for today
+Day 39 -
+Day 40 -
+Day 41 -
